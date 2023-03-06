@@ -1,5 +1,5 @@
-![IMG_7718](https://user-images.githubusercontent.com/125838993/222997163-b9ec3433-bc29-40a1-9169-0d4d42ffc5c9.png)
 # **Rachel Yeow**
+![IMG_7718](https://user-images.githubusercontent.com/125838993/222997163-b9ec3433-bc29-40a1-9169-0d4d42ffc5c9.png)
 
 ## **Education**
 - 2022 in Global Master of Business Administration 國企企業管理碩士 at Tunghai University 東海大學, Taiwan
