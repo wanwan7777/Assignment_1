@@ -1,4 +1,4 @@
-
+![IMG_7718](https://user-images.githubusercontent.com/125838993/222997163-b9ec3433-bc29-40a1-9169-0d4d42ffc5c9.png)
 # **Rachel Yeow**
 
 ## **Education**
