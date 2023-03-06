@@ -1,9 +1,5 @@
-# Assignment_1
 
 # **Rachel Yeow**
-## *Global Master Business Adminitration*
-
-#
 
 ## **Education**
 - 2022 in Global Master of Business Administration 國企企業管理碩士 at Tunghai University 東海大學, Taiwan
