@@ -1,4 +1,4 @@
-IMG_7718
+
 # **Rachel Yeow**
 
 ## **Education**
