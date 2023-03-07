@@ -1,4 +1,10 @@
 # **Rachel Yeow**
+![IMG_7718](https://user-images.githubusercontent.com/125838993/222997163-b9ec3433-bc29-40a1-9169-0d4d42ffc5c9.png)
+
+## **About Me**
+*My name is Rachel, and I'm a recent GMBA student in Tunghai University after receiving my Finance degree from a univeristy in Malaysia, UTAR.*
+
+*I am an extrovert and willing to explore new things, so i am activite in attending school events and sport activities during my degree. I am good in Volleyball which been represent my state for competitions. Besides, as an extrovert, i also enjoy Reading, listening to music, and some art things like Baking, Acrylic Panting, Pottery Making.*
 
 ![IMG_7718](https://user-images.githubusercontent.com/125838993/222997163-b9ec3433-bc29-40a1-9169-0d4d42ffc5c9.png)
 
@@ -31,3 +37,9 @@
 - English - Professional proficiency in listening, speaking, reading, and writing
 - Bahasa Melayu 
 - Chinese, Native
+
+## **Hobbies**
+- Photo Shooting
+- Swimming
+- Play Volleyball
+- Baking
