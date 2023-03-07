@@ -1,5 +1,4 @@
 # **Rachel Yeow**
-![IMG_7718](https://user-images.githubusercontent.com/125838993/223410509-2ca2b592-a8c3-4285-8d77-d3dd083bb1a2.png)
 
 ## **About Me**
 *My Name is Rachel, I'm a recent GMBA student in Tunghai University after completing my Finance degree in UTAR Malaysia.*
